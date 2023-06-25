@@ -1,5 +1,4 @@
-Chapter 4: Managing Time and Avoiding Distractions: Techniques for Managing Time Spent on Social Media
-======================================================================================================
+# Techniques for Managing Time Spent on Social Media
 
 Managing time spent on social media is essential to being a productive social media user. In this chapter, we will explore techniques for managing your time effectively on social media.
 

@@ -1,5 +1,4 @@
-Chapter 8: Staying Safe and Secure on Social Media: Best Practices for Protecting Personal Information and Avoiding Scams
-=========================================================================================================================
+# Best Practices for Protecting Personal Information and Avoiding Scams
 
 Staying safe and secure on social media is essential to protecting your personal information and avoiding scams. In this chapter, we will explore best practices for staying safe and secure on social media.
 

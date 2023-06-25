@@ -1,5 +1,4 @@
-Chapter 5: Creating Engaging and Relevant Content: Tips for Tailoring Content to Specific Platforms and Audiences
-=================================================================================================================
+# Tips for Tailoring Content to Specific Platforms and Audiences
 
 Creating engaging and relevant content is essential to being a productive social media user. In this chapter, we will explore tips for tailoring content to specific platforms and audiences.
 

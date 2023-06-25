@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Defining Productive Social Media Use
-=============================================================
+# Defining Productive Social Media Use
 
 Social media has become an integral part of our daily lives, and while it offers many benefits, it can also be a source of distraction and time-wasting if not used efficiently. In this chapter, we will define what it means to be a productive social media user.
 

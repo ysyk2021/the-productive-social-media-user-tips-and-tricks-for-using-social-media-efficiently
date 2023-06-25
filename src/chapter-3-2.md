@@ -1,5 +1,4 @@
-Chapter 3: Developing a Social Media Strategy: Setting Goals and Identifying Target Audiences
-=============================================================================================
+# Setting Goals and Identifying Target Audiences
 
 Developing a social media strategy is essential to being a productive social media user. In this chapter, we will explore the first steps in developing your strategy: setting goals and identifying target audiences.
 

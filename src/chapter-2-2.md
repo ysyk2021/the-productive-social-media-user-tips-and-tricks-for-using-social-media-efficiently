@@ -1,5 +1,4 @@
-Chapter 2: Understanding Social Media Platforms: Identifying the Best Platform(s) for Specific Goals
-====================================================================================================
+# Identifying the Best Platform(s) for Specific Goals
 
 Identifying the best social media platform(s) for specific goals is essential to being a productive social media user. In this chapter, we will explore factors to consider when deciding which platforms to use for different goals.
 

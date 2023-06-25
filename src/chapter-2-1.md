@@ -1,5 +1,4 @@
-Chapter 2: Understanding Social Media Platforms: Overview of Popular Social Media Platforms
-===========================================================================================
+# Overview of Popular Social Media Platforms
 
 Understanding the different social media platforms is essential to being a productive social media user. In this chapter, we will provide an overview of some of the most popular social media platforms.
 

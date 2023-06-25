@@ -1,5 +1,4 @@
-Chapter 3: Developing a Social Media Strategy: Strategies for Developing an Efficient and Effective Social Media Strategy
-=========================================================================================================================
+# Strategies for Developing an Efficient and Effective Social Media Strategy
 
 Developing an efficient and effective social media strategy is essential to being a productive social media user. In this chapter, we will explore strategies for developing a successful social media strategy.
 

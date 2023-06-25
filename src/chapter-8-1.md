@@ -1,5 +1,4 @@
-Chapter 8: Staying Safe and Secure on Social Media: Tips for Staying Safe and Secure While Using Social Media
-=============================================================================================================
+# Tips for Staying Safe and Secure While Using Social Media
 
 While social media can be a powerful tool for achieving personal and professional goals, it's important to stay safe and secure while using these platforms. In this chapter, we will provide tips for staying safe and secure on social media.
 
