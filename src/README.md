@@ -8,5 +8,4 @@ Whether you're an entrepreneur looking to grow your business, a marketer seeking
 
 "The Productive Social Media User" is not just another social media guidebook; it's a comprehensive resource for anyone looking to use social media as a tool for personal and professional growth. From developing a personal branding strategy to mastering social media analytics, this book offers valuable insights and practical advice for every reader.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
