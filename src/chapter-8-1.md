@@ -1,4 +1,4 @@
-Chapter: Tips for Staying Safe and Secure While Using Social Media
+Tips for Staying Safe and Secure While Using Social Media
 ==================================================================
 
 In this chapter, we will explore essential tips for staying safe and secure while using social media. As a productive social media user, it is crucial to prioritize your online safety and protect your personal information. By following these tips, you can enjoy a safer and more secure experience on social media platforms. Let's dive into some valuable advice:

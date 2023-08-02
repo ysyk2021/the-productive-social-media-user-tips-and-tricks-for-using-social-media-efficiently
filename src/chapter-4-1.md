@@ -1,4 +1,4 @@
-Chapter: Techniques for Managing Time Spent on Social Media
+Techniques for Managing Time Spent on Social Media
 ===========================================================
 
 In this chapter, we will explore various techniques for effectively managing the time spent on social media. With the ever-increasing presence of social media platforms in our lives, it is crucial to develop strategies to ensure that we use them efficiently and avoid wasting excessive amounts of time. By implementing these techniques, you can strike a balance between enjoying the benefits of social media and maintaining productivity in other aspects of your life.
