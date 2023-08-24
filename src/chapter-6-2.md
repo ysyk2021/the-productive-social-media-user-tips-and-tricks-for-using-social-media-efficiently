@@ -1,4 +1,3 @@
-# Strategies for Engaging with Followers and Building a Community
 
 Building and maintaining relationships on social media is essential to achieving your goals and growing your presence. In this chapter, we will explore strategies for engaging with followers and building a community on social media.
 

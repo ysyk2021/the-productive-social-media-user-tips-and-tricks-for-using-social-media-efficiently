@@ -1,4 +1,3 @@
-# Introduction
 
 Social media has become a central part of our daily lives, both personally and professionally. However, with the constant influx of information, notifications, and updates, it can be challenging to use social media efficiently and effectively.
 

@@ -1,5 +1,3 @@
-Chapter 6: Building and Maintaining Relationships
-=================================================
 
 Building and maintaining relationships is a critical aspect of being a productive social media user. In this chapter, we will explore the importance of building and maintaining relationships on social media, as well as strategies for engaging with followers and building a community.
 

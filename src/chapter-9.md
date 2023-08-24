@@ -1,5 +1,3 @@
-Chapter 9: Navigating Challenges and Controversies
-==================================================
 
 Navigating challenges and controversies on social media can be a significant challenge for users. In this chapter, we will explore common challenges and controversies on social media and provide strategies for dealing with negative feedback and online harassment.
 

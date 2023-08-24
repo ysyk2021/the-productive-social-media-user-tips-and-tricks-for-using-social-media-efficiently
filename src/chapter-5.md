@@ -1,5 +1,3 @@
-Chapter 5: Creating Engaging and Relevant Content
-=================================================
 
 Creating engaging and relevant content is essential to being a productive social media user. In this chapter, we will explore strategies for creating content that resonates with your audience, as well as tips for tailoring content to specific platforms and audiences.
 

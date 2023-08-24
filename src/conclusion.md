@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored strategies and techniques for being a productive social media user. From managing your time effectively to creating engaging and relevant content, these tips and tricks can help you achieve personal and professional success on social media.
 

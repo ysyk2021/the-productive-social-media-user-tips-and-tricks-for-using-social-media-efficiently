@@ -1,5 +1,3 @@
-Chapter 4: Managing Time and Avoiding Distractions
-==================================================
 
 Managing time and avoiding distractions is essential to being a productive social media user. In this chapter, we will explore techniques for managing time spent on social media, as well as tips for avoiding distractions and staying focused.
 

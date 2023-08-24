@@ -1,5 +1,3 @@
-Overview of Popular Social Media Platforms
-===================================================
 
 In this chapter, we will provide an overview of some popular social media platforms that are widely used around the world. Understanding the key features, user demographics, and purposes of each platform can help you make informed decisions about which platforms align with your goals and target audience. Let's explore these platforms in detail:
 

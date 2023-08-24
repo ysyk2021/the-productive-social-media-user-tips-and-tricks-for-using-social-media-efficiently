@@ -1,5 +1,3 @@
-Tips for Avoiding Distractions and Staying Focused
-===========================================================
 
 In this chapter, we will explore effective strategies and tips for avoiding distractions and staying focused while using social media. Social media platforms can be highly engaging and addictive, making it challenging to maintain productivity and focus. By implementing the following tips and tricks, you can optimize your social media usage, minimize distractions, and increase your overall efficiency.
 

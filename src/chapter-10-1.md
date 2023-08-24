@@ -1,4 +1,3 @@
-# Recap of the Benefits of Productive Social Media Use
 
 In this book, we have explored tips and tricks for using social media efficiently. From setting goals to managing notifications, there are numerous ways to maximize productivity while using social media. In this chapter, we will recap the benefits of productive social media use.
 
